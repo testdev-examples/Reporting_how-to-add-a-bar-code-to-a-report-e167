@@ -1,0 +1,1 @@
+# Reporting_how-to-add-a-bar-code-to-a-report-e167
